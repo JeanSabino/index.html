@@ -1,1 +1,0 @@
-Jean Sabino Magalhães Diniz
